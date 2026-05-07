@@ -1,9 +1,9 @@
-## 🧃 Hi there! I'm wiyuka! ヾ(๑╹ヮ╹๑)ﾉ” (w is lowercase)
+## 🧃 Hi there! I'm wiyuka! (w is lowercase)
 
 ### 🎯 About Me
-- 15 years old... `qvq`
+- 15 years old...
 - Passionate about:  
-  🎨 Painting • 💻 Coding • 🍻 Fun with friends  
+  🎨 Painting • 💻 Coding
 - Fascinated by:  
   🧪 Experimental tech • 🚀 High-performance algorithms
 
