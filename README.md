@@ -1,7 +1,7 @@
 ## 🧃 Hi there! I'm wiyuka! (w is lowercase)
 
 ### 🎯 About Me
-- 15 years old...
+- 15 years old... o.o
 - Passionate about:  
   🎨 Painting • 💻 Coding
 - Fascinated by:  
